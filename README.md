@@ -4,5 +4,5 @@ I'm Fatimah. I am a professional in accounting background who found passion in d
 
 **📚 Projects**
 
-Welcome to my portfolio, where I showcase my skills.
+Welcome to my [portfolio](#project), where I showcase my skills.
 
