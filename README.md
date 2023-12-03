@@ -4,8 +4,5 @@ I'm Fatimah. I am a professional in accounting background who found passion in d
 
 **📚 Projects**
 
-Welcome to my portfolio, where I showcase my projects.
+Welcome to my portfolio, where I showcase my skills.
 
-**👋🏻 Connect with Me**
-
-[LinkedIn]([url](https://www.linkedin.com/in/fatimahsakinah/)https://www.linkedin.com/in/fatimahsakinah/)
